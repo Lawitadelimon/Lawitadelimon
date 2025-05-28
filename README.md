@@ -2,6 +2,7 @@
 
 
 ¡Hola! Soy  **Laura Juarez Vargas** **(Lawitadelimon)** 🍋👩🏻‍💻⚙️
+
 Apasionada por la tecnología, la creatividad y el aprendizaje constante.
 
 ## 🌟 Sobre mí
